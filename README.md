@@ -1,2 +1,0 @@
-# truefloraorganics
-Organic Shampoo Website
